@@ -1,5 +1,5 @@
 
-# 4000 Essential Egnlish Words Index (shortcut)
+# 4000 Essential English Words Index (shortcut)
 *A shortcut to the videos(youtube) of 4000 essential English words.*
 
 **Book 4:**
